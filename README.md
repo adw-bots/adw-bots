@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @adw-bots
+- 👀 I’m interested in discord bots
+- 💞️ I’m looking to collaborate on community servers.
+- 📫 How to reach me on discord "neverkeep"
+- 😄 Pronouns: Andrew
